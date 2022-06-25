@@ -1,6 +1,8 @@
 # MAKE-FRIENDS-NOT-ART
 Desain stiker dan kaos
 
+Feel free to contact dusjagr if you want to get a t-shirt printed. Or just download it and send it to whatever printshop in your neighborhood! Open Source Kaos!!
+
 ![](photos/MAKE-FRIENDS-NOT-ART_locals.jpg)
 
 # The idea
