@@ -21,6 +21,10 @@ Due to different cultures and oppinions we also customized modified versions of 
 
 ![](photos/kaos_fresh_Printed.jpg)
 
+More Memes followed and we all love Babies!
+
+![](photos/MakeMemesNotArt_AndBabies.jpg)
+
 # The stickers (stiker)
 
 For our German friends we also made translated versions of the sticker: MACHT FREUNDE STATT KUNST
